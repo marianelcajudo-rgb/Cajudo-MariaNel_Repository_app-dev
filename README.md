@@ -19,4 +19,4 @@ He doesn’t rely on normal investigation—he understands people and uses that 
 ---
 
 ## Conclusion
-The Mentalist stands out to me because it shows how powerful thinking and observation can be in solving problems.
+The Mentalist stands out to me because it shows how powerful our minds in thinking and observation can be in solving problems.
